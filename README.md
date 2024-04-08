@@ -3,6 +3,9 @@
 # [-《CK》WhiteCat 2.0 ~DT [RK]](https://drive.google.com/file/d/1sO61QHDWE9K3m2QMigUhrUtRhEeCoLm6/view?usp=drive_link)
 ![](https://imgur.com/rD9zsP6.png)
 
+# [MouseEasy DT (Karthy)](https://drive.google.com/file/d/1GcywBjwcWI4XrcFNnWCNJTTJBN495XCa/view?usp=drive_link)
+![](https://imgur.com/nNotG5P.png)
+
 # [#cent+1203](https://drive.google.com/file/d/1Y-K-rVD-sGLP9eGQSML9peMDD0KWodmw/view?usp=drive_link)
 ![](https://imgur.com/zpZzGVN.png)
 
