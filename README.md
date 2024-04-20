@@ -23,3 +23,8 @@
 
 # [MouseEasy OLD (Bubbleman)](https://drive.google.com/file/d/1pj8mUQSFLmLW_aj63NHhnIJG4jsxJnAB/view?usp=drive_link)
 ![](https://imgur.com/EpHyHIt.png)
+
+# [MouseEasy NM (Aristia)](https://drive.google.com/file/d/1Fq8WC03qRL_bMW1Ur2J-vf4c8LBqlC6C/view?usp=drive_link)
+![](https://imgur.com/LDHQH0R.png)
+
+
