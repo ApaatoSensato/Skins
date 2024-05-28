@@ -27,4 +27,5 @@
 # [MouseEasy NM (Aristia)](https://drive.google.com/file/d/1Fq8WC03qRL_bMW1Ur2J-vf4c8LBqlC6C/view?usp=drive_link)
 ![](https://imgur.com/LDHQH0R.png)
 
-
+# [Aristia(Edit)](https://drive.google.com/file/d/1va5SV_QHBuM6Re-I9tursa2L3NNT0VwM/view?usp=drive_link)
+![](https://imgur.com/IXD7nZb.png)
