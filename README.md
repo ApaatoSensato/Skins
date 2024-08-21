@@ -35,3 +35,6 @@
 
 # [BubbleSkin20-10-09 + Argon pro](https://drive.google.com/file/d/1KDtJUF53Z_nb8MJ14pdGr_U1NUuEdEQw/view?usp=drive_link)
 ![](https://imgur.com/koev9SZ.png)
+
+# [《CK》 Bacon boi 1.0 skin](https://joofixd.s-ul.eu/Idc2Mdek)
+![](https://osu.ppy.sh/ss/15821083/950a)
